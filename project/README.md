@@ -8,7 +8,7 @@ If you currently struggle with managing your finances across multiple platforms 
 
 ## **📹Video Demo**
 
-Url:
+Url: https://youtu.be/F25PFeWEnQQ
 
 ## **🖼️Example Screenshot**
 
